@@ -1,2 +1,2 @@
 # Museum-of-candy
-![](/images/loli.png)
+![](/milk.png)
